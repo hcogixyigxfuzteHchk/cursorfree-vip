@@ -13,7 +13,7 @@
 
 ---
 
-# ➤ Cursor Free VIP
+# ➤ Curvgfsor Free VIP
 
 <div align="center">
 <p align="center">
